@@ -7,5 +7,5 @@
 
 - maybe just that, cause i dont know what i can explain bout myself
 u all can text me on instagram or discord
-## @Nael_soriano
-## nataellee_
+- @Nael_soriano
+- nataellee_
