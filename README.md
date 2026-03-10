@@ -6,4 +6,4 @@
 - 📫 How to reach me: nataellesigma@gmail.com
 
 maybe just that, cause i dont know what i can explain bout myself
-u all can text me on instagram or discord @Nael_soriano nataellee_
+u all can text me on instagram @Nael_soriano or discord nataellee_
